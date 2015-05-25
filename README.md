@@ -1,13 +1,12 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2015/05/24 更新）
+（2015/05/25 更新）
 
 ####最新短网址：https://x.co/zhen99
 
 ####永久短网址：https://git.io/free99
 
 ***
-###<a href="https://dh8f4fwk3pif2.cloudfront.net/fga01.php?fid=fg754p.zip" target="_blank">5月22日最新发布：自由门7.54版(电脑版)</a>
 
 #  1.&nbsp;&nbsp;<a href="https://dh8f4fwk3pif2.cloudfront.net" target="_blank">一键翻墙</a>
 
