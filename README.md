@@ -34,4 +34,4 @@
 
 ####固定短网址2：https://x.co/zhen99
 ####固定二维码2:
-![翻墙1](https://d2p1s92gxflbgh.cloudfront.net/pic/yjfq1.png)
+![翻墙2](https://d2p1s92gxflbgh.cloudfront.net/pic/yjfq1.png)
