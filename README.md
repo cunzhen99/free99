@@ -2,9 +2,9 @@
 # 电脑、手机一键翻墙
 （2015/05/31 更新）
 
-####永久短网址：https://git.io/free
+####固定短网址1：https://git.io/free99
 
-####高速短网址：http://uuz.cc/free
+####固定短网址2：https://x.co/free99
 
 ***
 
@@ -26,12 +26,12 @@
 
 ***
 
-####永久短网址：https://git.io/free
-####永久二维码：
+####固定短网址1：https://git.io/free99
+####固定二维码1：
 ![翻墙1](https://d2vfinceh4mqf8.cloudfront.net/pic/yjfq0.png)
 
 ***
 
-####高速短网址：http://uuz.cc/free
-####高速二维码（固定）:
+####固定短网址2：https://x.co/free99
+####固定二维码2:
 ![翻墙2](https://d2vfinceh4mqf8.cloudfront.net/pic/yjfq1.png)
