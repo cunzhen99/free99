@@ -25,12 +25,12 @@
 
 ***
 
-####固定短网址1：https://git.io/free99
-####固定二维码1：
+####永久短网址：https://git.io/free99
+####永久二维码1：
 ![翻墙1](https://d1990rmk2ck7n4.cloudfront.net/pic/yjfq0.png)
 
 ***
 
-####固定短网址2：https://x.co/free99
-####固定二维码2:
+####固定短网址：https://x.co/free99
+####固定二维码:
 ![翻墙2](https://d1990rmk2ck7n4.cloudfront.net/pic/yjfq1.png)
