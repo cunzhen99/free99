@@ -39,4 +39,4 @@
 
 ####三退短网址：https://x.co/santui
 ####三退二维码:
-![翻墙2](https://d1990rmk2ck7n4.cloudfront.net/pic/tui1.png)
+![三退](https://d1990rmk2ck7n4.cloudfront.net/pic/tui1.png)
