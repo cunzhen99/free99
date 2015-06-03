@@ -26,7 +26,7 @@
 ***
 
 ####永久短网址：https://git.io/free99
-####永久二维码1：
+####永久二维码：
 ![翻墙1](https://d1990rmk2ck7n4.cloudfront.net/pic/yjfq0.png)
 
 ***
