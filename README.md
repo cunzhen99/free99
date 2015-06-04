@@ -10,9 +10,9 @@
 
 ***
 
-#  一键翻墙：
+#  <a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=1" target="_blank">一键翻墙网址1</a>
 
-#  &nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=1" target="_blank">网址1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=2" target="_blank">网址2</a>
+#  <a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=2" target="_blank">一键翻墙网址2</a>
 
 ***
 
