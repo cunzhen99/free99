@@ -12,7 +12,7 @@
 
 ***
 
-####永久短网址：https://git.io/free99
+####固定短网址：https://git.io/free99
 
 ####固定短网址：https://x.co/free99
 
@@ -26,8 +26,8 @@
 
 ***
 
-####永久短网址：https://git.io/free99
-####永久二维码：
+####固定短网址：https://git.io/free99
+####固定二维码：
 ![翻墙1](https://dwvob1mylz161.cloudfront.net/pic/yjfq0.png)
 
 ***
