@@ -6,7 +6,7 @@
 
 # <a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dwvob1mylz161.cloudfront.net/dttz01.php/605" target="_blank">动态网1</a>
 
-# <a href="https://d2wsc19gffngcm.cloudfront.net/freetz.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d2wsc19gffngcm.cloudfront.net/dttz01.php/605" target="_blank">动态网2</a>
+# <a href="https://d2wsc19gffngcm.cloudfront.net/freetz.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw99" target="_blank">动态网2</a>
 
 ***
 
