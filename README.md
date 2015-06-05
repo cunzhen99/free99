@@ -37,5 +37,5 @@
 ***
 
 ####动态网入口：https://x.co/dtw99
-####动态网二维码:
+####二维码:
 ![动态网](https://dwvob1mylz161.cloudfront.net/pic/dtw1.png)
