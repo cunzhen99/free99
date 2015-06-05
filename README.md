@@ -10,11 +10,11 @@
 
 ***
 
-####固定短网址：https://git.io/free99
+####永久短网址：https://git.io/free99
 
-####固定短网址：https://x.co/free99
+####翻墙网入口：https://x.co/free99
 
-####三退短网址：https://x.co/santui
+####动态网入口：https://x.co/dtw99
 
 ***
 
@@ -24,18 +24,18 @@
 
 ***
 
-####固定短网址：https://git.io/free99
-####固定二维码：
+####永久短网址：https://git.io/free99
+####永久二维码：
 ![翻墙1](https://dwvob1mylz161.cloudfront.net/pic/yjfq0.png)
 
 ***
 
-####固定短网址：https://x.co/free99
-####固定二维码:
+####翻墙网入口：https://x.co/free99
+####翻墙二维码:
 ![翻墙2](https://dwvob1mylz161.cloudfront.net/pic/yjfq1.png)
 
 ***
 
-####三退短网址：https://x.co/santui
-####三退二维码:
-![三退](https://dwvob1mylz161.cloudfront.net/pic/tui1.png)
+####动态网入口：https://x.co/dtw99
+####动态网二维码:
+![动态网](https://dwvob1mylz161.cloudfront.net/pic/dtw1.png)
