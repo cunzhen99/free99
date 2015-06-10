@@ -2,6 +2,7 @@
 # 电脑、手机一键翻墙
 （2015/06/10 更新）
 
+####本页短网址：https://git.io/free99
 ***
 
 # <a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw01" target="_blank">动态网1</a>
