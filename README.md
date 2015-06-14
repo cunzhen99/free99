@@ -2,8 +2,8 @@
 # 电脑、手机一键翻墙
 （2015/06/14 更新）
 
-####请关注微信公众号：<a href="https://d2dj0semstotmk.cloudfront.net/pic/cunzhen9901-wx.jpg" target="_blank">cunzhen9901</a>
 ####本页短网址：https://git.io/free99
+####请关注微信公众号：<a href="https://d2dj0semstotmk.cloudfront.net/pic/cunzhen9901-wx.jpg" target="_blank">cunzhen9901</a>
 
 ***
 
