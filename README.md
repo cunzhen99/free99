@@ -3,7 +3,7 @@
 （2015/06/14 更新）
 
 ####本页短网址：https://git.io/free99
-####请关注我的微信公众号: cunzhen9901
+####请关注我的微信公众号: <a href="https://dwvob1mylz161.cloudfront.net/pic/cunzhen9901-wx.jpg" target="_blank">cunzhen9901</a>
 ***
 
 # <a href="https://dwvob1mylz161.cloudfront.net/freetz.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d2wsc19gffngcm.cloudfront.net/dttz01.php/614" target="_blank">动态网1</a>
