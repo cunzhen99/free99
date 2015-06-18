@@ -6,7 +6,7 @@
 
 ***
 
-### <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=um3.2.apk" target="_blank">6月15日最新发布：无界一点通3.2（安卓版）</a>
+### <a href="https://dwvob1mylz161.cloudfront.net/fga01.php?fid=um3.2.apk" target="_blank">6月15日最新发布：无界一点通3.2版（安卓版）</a>
 
 ***
 
