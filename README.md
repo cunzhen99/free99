@@ -1,6 +1,6 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2015/06/28 更新）
+（2015/06/29 更新）
 
 ####本页短网址：https://git.io/free99
 
@@ -10,7 +10,7 @@
 
 ***
 
-# <a href="https://dwvob1mylz161.cloudfront.net" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3uzd7cb4l12h3.cloudfront.net/dttz_01.php/628" target="_blank">动态网1</a>
+# <a href="https://dwvob1mylz161.cloudfront.net" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3uzd7cb4l12h3.cloudfront.net/dttz_01.php/629" target="_blank">动态网1</a>
 
 # <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
 
