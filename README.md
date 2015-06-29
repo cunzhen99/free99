@@ -6,7 +6,7 @@
 
 ***
 
-## >> <a href="https://github.com/cunzhen99/zhen-news/blob/master/README.md" target="_blank">【转载】起诉江泽民 谁能挡得住</a>
+#  <a href="https://github.com/cunzhen99/zhen-news/blob/master/README.md" target="_blank">【转载】起诉江泽民 谁能挡得住</a>
 
 ***
 
