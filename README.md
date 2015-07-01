@@ -10,9 +10,9 @@
 
 ***
 
-# <a href="https://dyt5x87929a9b.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://g2.regte.eu.org/701" target="_blank">动态网1</a>
+# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3uzd7cb4l12h3.cloudfront.net/dttz_01.php/701" target="_blank">动态网1</a>
 
-# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d29t0hn4xbtt1c.cloudfront.net/701" target="_blank">动态网2</a>
+# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
 
 ***
 
