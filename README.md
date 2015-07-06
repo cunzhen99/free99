@@ -6,10 +6,6 @@
 
 ***
 
-#  <a href="https://github.com/cunzhen99/zhen-news/blob/master/README.md" target="_blank">【转载】起诉江泽民 谁能挡得住</a>
-
-***
-
 # <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3uzd7cb4l12h3.cloudfront.net/dttz_01.php/706" target="_blank">动态网1</a>
 
 # <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
