@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://ie.myftp.info/go/7/index.php?q=fFo%2F2PgkrGgdFj2bat1ZBAPSIygtrdM3CrH%2BxYNKyN1ED3%2B2t0kBVY25rJ4%3D" target="_blank">动态网1</a>
+# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://22.edns.biz/go/1/index.php?q=ufMNDnQulLtZX7oNFTm4AAe2LDgv98EhVdlMMFeYqVOnMiX%2BmsH5eS2JnE4%3D&hl=2e9" target="_blank">动态网1</a>
 
 # <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
 
