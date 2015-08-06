@@ -6,9 +6,9 @@
 
 ***
 
-# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dr30tpvmodaii.cloudfront.net" target="_blank">动态网1</a>
+# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://22.edns.biz/go/1/index.php" target="_blank">动态网1</a>
 
-# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1ltjzxd74o2ob.cloudfront.net" target="_blank">动态网2</a>
+# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://h23.duckdns.org/go/1/index.php" target="_blank">动态网2</a>
 
 ***
 
