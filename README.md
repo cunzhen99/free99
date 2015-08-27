@@ -28,16 +28,16 @@
 
 ####永久短网址：https://git.io/free99
 ####永久二维码：
-![翻墙1](https://dysnhgglc68sg.cloudfront.net/pic/yjfq0.png)
+![翻墙git](https://dysnhgglc68sg.cloudfront.net/pic/yjfq0.png)
 
 ***
 
 ####翻墙网入口：https://x.co/free99
 ####翻墙二维码:
-![翻墙2](https://dysnhgglc68sg.cloudfront.net/pic/yjfq1.png)
+![翻墙fq](https://dysnhgglc68sg.cloudfront.net/pic/yjfq1.png)
 
 ***
 
 ####动态网入口：https://x.co/dtw99
 ####二维码:
-![动态网](https://dysnhgglc68sg.cloudfront.net/pic/dtw1.png)
+![动态网1](https://dysnhgglc68sg.cloudfront.net/pic/dtw1.png)
