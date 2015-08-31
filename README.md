@@ -1,12 +1,12 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2015/08/31 更新）
+（2015/09/01 更新）
 
 ####本页短网址：https://git.io/free99
 
 ***
 
-# <a href="http://f2k7i.x.incapdns.net" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://c5.9yahoo.eu.org/831" target="_blank">动态网1</a>
+# <a href="http://f2k7i.x.incapdns.net" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://c5.9yahoo.eu.org/901" target="_blank">动态网1</a>
 
 # <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
 
