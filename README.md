@@ -8,7 +8,7 @@
 
 # <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://gr4.ebb55.com/831" target="_blank">动态网1</a>
 
-# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1.cunzhen.info/831" target="_blank">动态网2</a>
+# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://sp.cc99.eu.org/831" target="_blank">动态网2</a>
 
 ***
 
