@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://f3.ct35.eu.org/831" target="_blank">动态网1</a>
+# <a href="https://dggchoya06912.cloudfront.net/freetz01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d6.bg76.eu.org/831" target="_blank">动态网1</a>
 
 # <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
 
