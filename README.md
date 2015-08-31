@@ -8,7 +8,7 @@
 
 # <a href="http://f2k7i.x.incapdns.net" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://c5.9yahoo.eu.org/831" target="_blank">动态网1</a>
 
-# <a href="http://w5pac.x.incapdns.net" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
+# <a href="https://x.co/fqw02" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://x.co/dtw02" target="_blank">动态网2</a>
 
 ***
 
