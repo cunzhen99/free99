@@ -12,7 +12,7 @@
 
 ***
 
-####永久短网址：https://git.io/free99
+####永久短网址：https://git.io/free
 
 ####翻墙网入口：https://x.co/free99
 
