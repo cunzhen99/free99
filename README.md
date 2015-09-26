@@ -12,18 +12,10 @@
 
 ***
 
-####永久短网址：https://git.io/free
-
-####翻墙网入口：https://x.co/free99
-
-####动态网入口：https://x.co/dtw999
-
-***
-
 ### 电脑版翻墙软件：1. <a href="http://d2b6pqj3d6niba.cloudfront.net/fgget.php?fid=fg755p.zip" target="_blank">自由门7.55版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://d2b6pqj3d6niba.cloudfront.net/fgget.php?fid=u1502.zip" target="_blank">无界浏览15.02版</a>
 
 ### 手机安卓版翻墙软件：1. <a href="http://d2b6pqj3d6niba.cloudfront.net/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://d2b6pqj3d6niba.cloudfront.net/fgget.php?fid=um3.2.apk" target="_blank">无界一点通</a>
 
 ***
 
-![翻墙git](https://d2b6pqj3d6niba.cloudfront.net/pic/yjfq0-new.png)
+![翻墙git](http://d2b6pqj3d6niba.cloudfront.net/pic/yjfq0.png)
