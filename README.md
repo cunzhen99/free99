@@ -2,7 +2,7 @@
 # 电脑、手机一键翻墙
 （2015/09/26 更新）
 
-####本页短网址：https://git.io/free
+####永久短网址：https://git.io/free
 
 ***
 
@@ -26,18 +26,4 @@
 
 ***
 
-####永久短网址：https://git.io/free
-####永久二维码：
-![翻墙git](https://d2b6pqj3d6niba.cloudfront.net/pic/yjfq0.png)
-
-***
-
-####翻墙网入口：https://x.co/free99
-####翻墙二维码:
-![翻墙fq](https://d2b6pqj3d6niba.cloudfront.net/pic/yjfq1.png)
-
-***
-
-####动态网入口：https://x.co/dtw999
-####二维码:
-![动态网1](https://d2b6pqj3d6niba.cloudfront.net/pic/dtw1.png)
+![翻墙git](https://d2b6pqj3d6niba.cloudfront.net/pic/yjfq0-new.png)
