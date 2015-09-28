@@ -1,14 +1,14 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2015/09/27 更新）
+（2015/09/28 更新）
 
 ####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://dggchoya06912.cloudfront.net/fqtz.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d3uzd7cb4l12h3.cloudfront.net/dtwtz01.php/927" target="_blank">动态网1</a>
+# <a href="http://dggchoya06912.cloudfront.net/fqtz.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d3uzd7cb4l12h3.cloudfront.net/dtwtz01.php/928" target="_blank">动态网1</a>
 
-# <a href="http://d24wy7akgrdi5f.cloudfront.net/fqtz.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d24wy7akgrdi5f.cloudfront.net/dtwtz0.php/927" target="_blank">动态网2</a>
+# <a href="http://d24wy7akgrdi5f.cloudfront.net/fqtz.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d24wy7akgrdi5f.cloudfront.net/dtwtz0.php/928" target="_blank">动态网2</a>
 
 ***
 
