@@ -8,7 +8,7 @@
 
 # <a href="http://dggchoya06912.cloudfront.net/fq01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d3uzd7cb4l12h3.cloudfront.net/dtwdl01.php/1008" target="_blank">动态网1</a>
 
-# <a href="http://d24wy7akgrdi5f.cloudfront.net/fq01.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d24wy7akgrdi5f.cloudfront.net/dtwdl0.php/1008" target="_blank">动态网2</a>
+# <a href="http://dysnhgglc68sg.cloudfront.net/fq01.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://dysnhgglc68sg.cloudfront.net/dtwdl0.php/1008" target="_blank">动态网2</a>
 
 ***
 
