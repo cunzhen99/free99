@@ -18,4 +18,4 @@
 
 ***
 
-<a href="https://github.com/zhen99425/free/blob/master/README.md" target="_blank"><img src="http://d1ydyrxhutkqmg.cloudfront.net/pic/yjfq0.png"></a>  
+<a href="https://github.com/zhen99425/free/blob/master/README.md" target="_blank"><img src="http://d2g081d0d1zuxn.cloudfront.net/pic/yjfq0.png"></a>  
