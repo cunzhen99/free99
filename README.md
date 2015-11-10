@@ -6,9 +6,9 @@
 
 ***
 
-# <a href="http://d1jf3ndcyeuyge.cloudfront.net/fq01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1wuzbhuio7elk.cloudfront.net/dtwdl01.php/0" target="_blank">动态网1</a>
+# <a href="http://d1jf3ndcyeuyge.cloudfront.net/fq01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1wuzbhuio7elk.cloudfront.net/dtwdl01.php/1110" target="_blank">动态网1</a>
 
-# <a href="http://d38cupddouy0ag.cloudfront.net/fq01.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d38cupddouy0ag.cloudfront.net/dtwdl0.php/0" target="_blank">动态网2</a>
+# <a href="http://d38cupddouy0ag.cloudfront.net/fq01.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d38cupddouy0ag.cloudfront.net/dtwdl0.php/1110" target="_blank">动态网2</a>
 
 ***
 
