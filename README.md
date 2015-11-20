@@ -18,4 +18,4 @@
 
 ***
 
-<img src="http://d1kk5cma8vypuk.cloudfront.net/pic/yjfq0.png" />
+<img src="http://d1kk5cma8vypuk.cloudfront.net/pic/yjfq0.png">
