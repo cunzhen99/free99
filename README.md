@@ -1,14 +1,14 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2015/11/20 测试：网址有效）
+（2015/11/21 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://d1wuzbhuio7elk.cloudfront.net/fq01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d38cupddouy0ag.cloudfront.net/dtwdl01.php/1120" target="_blank">动态网1</a>
+# <a href="http://d1wuzbhuio7elk.cloudfront.net/fq01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d38cupddouy0ag.cloudfront.net/dtwdl01.php/1121" target="_blank">动态网1</a>
 
-# <a href="http://d21coots7yd2sw.cloudfront.net/fq01.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d21coots7yd2sw.cloudfront.net/dtwdl0.php/1120" target="_blank">动态网2</a>
+# <a href="http://d21coots7yd2sw.cloudfront.net/fq01.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d21coots7yd2sw.cloudfront.net/dtwdl0.php/1121" target="_blank">动态网2</a>
 
 ***
 
@@ -18,4 +18,4 @@
 
 ***
 
-<img src="http://d1kk5cma8vypuk.cloudfront.net/pic/yjfq0.png">
+![二维码](http://d1kk5cma8vypuk.cloudfront.net/pic/yjfq0.png)
