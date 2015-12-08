@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://d21coots7yd2sw.cloudfront.net/fq01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d2dfiggdyw59ja.cloudfront.net/dtwdl01.php/1208" target="_blank">动态网1</a>
+# <a href="http://d2dfiggdyw59ja.cloudfront.net/fq01.php?id=1" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d2dfiggdyw59ja.cloudfront.net/dtwdl01.php/1208" target="_blank">动态网1</a>
 
 # <a href="http://d3m46d2jzf4cww.cloudfront.net/fq01.php?id=2" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d3m46d2jzf4cww.cloudfront.net/dtwdl0.php/1208" target="_blank">动态网2</a>
 
