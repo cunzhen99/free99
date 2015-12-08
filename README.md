@@ -8,7 +8,7 @@
 
 # <a href="http://d3vqxvheq1hk5z.cloudfront.net" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://44j.keetatco.com/1208" target="_blank">动态网1</a>
 
-# <a href="http://d27pt9zzl4mbgu.cloudfront.net" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://222k.agpp.ir/1208" target="_blank">动态网2</a>
+# <a href="http://dtcb44il5yg9y.cloudfront.net" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://222k.agpp.ir/1208" target="_blank">动态网2</a>
 
 ***
 
