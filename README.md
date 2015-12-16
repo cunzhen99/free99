@@ -18,4 +18,4 @@
 
 ***
 
-![二维码](http://d3805ubhod3jiy.cloudfront.net/pic/yjfq0.png)
+![二维码](http://tqakv.x.incapdns.net/pic/yjfq0.png)
