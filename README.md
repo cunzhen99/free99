@@ -8,7 +8,7 @@
 
 # <a href="http://d244t7buu5aisy.cloudfront.net" target="_blank">翻墙网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://dt3.pwnz.org/1216" target="_blank">动态网1</a>
 
-# <a href="http://d30ukpfou3l562.cloudfront.net" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://dt4.arno.fi/1216" target="_blank">动态网2</a>
+# <a href="http://d3805ubhod3jiy.cloudfront.net" target="_blank">翻墙网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://dt4.arno.fi/1216" target="_blank">动态网2</a>
 
 ***
 
@@ -18,4 +18,4 @@
 
 ***
 
-![二维码](http://d30ukpfou3l562.cloudfront.net/pic/yjfq0.png)
+![二维码](http://d3805ubhod3jiy.cloudfront.net/pic/yjfq0.png)
