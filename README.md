@@ -6,9 +6,9 @@
 
 ***
 
-# <a href="http://dt3.pwnz.org/1217" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1lg90hzkmshdt.cloudfront.net" target="_blank">翻墙网1</a>
+# <a href="http://dt3.pwnz.org/1217" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://tqakv.x.incapdns.net" target="_blank">翻墙网1</a>
 
-# <a href="http://d2qlx94wen1ael.cloudfront.net/1217" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://tqakv.x.incapdns.net" target="_blank">翻墙网2</a>
+# <a href="http://dt4.arno.fi/1217" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1pc42epfu2pkf.cloudfront.net" target="_blank">翻墙网2</a>
 
 ***
 
