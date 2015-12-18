@@ -1,14 +1,14 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2015/12/17 测试：网址有效）
+（2015/12/18 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://dt3.pwnz.org/1217" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://tqakv.x.incapdns.net" target="_blank">翻墙网1</a>
+# <a href="http://dt3.pwnz.org/1218" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.itarea.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt3.blinklab.com/1217" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1osaogfbdgdgo.cloudfront.net" target="_blank">翻墙网2</a>
+# <a href="http://dt3.blinklab.com/1218" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.bacek.com" target="_blank">翻墙网2</a>
 
 ***
 
