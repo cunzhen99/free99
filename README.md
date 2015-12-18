@@ -8,7 +8,7 @@
 
 # <a href="http://dt3.pwnz.org/1218" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.itarea.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt3.blinklab.com/1218" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.bacek.com" target="_blank">翻墙网2</a>
+# <a href="http://dt3.blinklab.com/1218" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.solfa.org" target="_blank">翻墙网2</a>
 
 ***
 
@@ -18,4 +18,4 @@
 
 ***
 
-![二维码](http://fq02.bacek.com/pic/yjfq0.png)
+![二维码](http://fq02.solfa.org/pic/yjfq0.png)
