@@ -18,4 +18,4 @@
 
 ***
 
-![二维码](http://tqakv.x.incapdns.net/pic/yjfq0.png)
+![二维码](http://fq02.bacek.com/pic/yjfq0.png)
