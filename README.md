@@ -8,7 +8,7 @@
 
 # <a href="http://dt03.pwnz.org/1230" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.newca.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-04.arno.fi/1230" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.olife.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-02.gax86.com/1230" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.olife.org" target="_blank">翻墙网2</a>
 
 ***
 
