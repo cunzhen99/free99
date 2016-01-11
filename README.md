@@ -18,4 +18,4 @@
 
 ***
 
-![二维码](http://fq03.imly.org/pic/yjfq0.png)
+<img src="/pic/yjfq0.png">
