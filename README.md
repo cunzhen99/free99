@@ -1,14 +1,14 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/01/12 测试：网址有效）
+（2016/01/13 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://dt03.kiani.com/112" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.stvad.org" target="_blank">翻墙网1</a>
+# <a href="http://dt03.kiani.com/113" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.stvad.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-04.turocied.com/112" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq03.imly.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-04.turocied.com/113" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq03.imly.org" target="_blank">翻墙网2</a>
 
 ***
 
