@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://dt03.kiani.com/115" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.newca.org" target="_blank">翻墙网1</a>
+# <a href="http://dt03.kiani.com/115" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-04.turocied.com/115" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.ig42.org" target="_blank">翻墙网2</a>
 
