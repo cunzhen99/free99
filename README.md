@@ -17,4 +17,4 @@
 ### 手机安卓版翻墙软件：1. <a href="http://fq03.itarea.org/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版3.2版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq03.itarea.org/fgget.php?fid=um3.5.apk" target="_blank">无界一点通3.5版</a>
 
 ***
-<p><img src="http://fq10.rm6.org/pic/yjfq0.png"></p>  
+<p><img src="http://fq05.stvad.org/pic/yjfq0.png"></p>  
