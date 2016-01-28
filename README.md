@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://dt03.kiani.com/128" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
+# <a href="http://d2qlx94wen1ael.cloudfront.net/128" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-04.turocied.com/128" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
 
