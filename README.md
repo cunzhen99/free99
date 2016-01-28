@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://dt-01.igster.org/129" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-01.olife.org/129" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-02.awiki.org/129" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
 
