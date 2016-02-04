@@ -10,9 +10,9 @@
 
 # <a href="http://dt-01.olife.org/204" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
 
-## <a href="http://dxlvd9xjbswep.cloudfront.net/urldt0.php/204" target="_blank">>>动态网更多网址...</a>
+## <a href="http://fq09.0bit.org/urldt0.php/204" target="_blank">>>动态网更多网址...</a>
 
-## <a href="http://d2568ixiv3vpys.cloudfront.net/urlfq0.php/204" target="_blank">>>翻墙网更多网址...</a>
+## <a href="http://fq10.rm6.org/urlfq0.php/204" target="_blank">>>翻墙网更多网址...</a>
 
 ***
 
