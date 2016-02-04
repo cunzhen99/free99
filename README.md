@@ -10,6 +10,8 @@
 
 # <a href="http://dt-01.olife.org/204" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
 
+# <a href="http://fq09.0bit.org/urldt0.php" target="_blank">动态网更多网址...</a>
+
 ***
 
 ### 电脑版翻墙软件：1. <a href="http://fq05.dler.org/fgget.php?fid=fg757p.zip" target="_blank">自由门7.57版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq05.dler.org/fgget.php?fid=u1504.zip" target="_blank">无界15.04版</a>
