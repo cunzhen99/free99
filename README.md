@@ -10,7 +10,7 @@
 
 # <a href="http://dt-01.olife.org/204" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
 
-# <a href="http://fq09.0bit.org/urldt0.php" target="_blank">动态网更多网址...</a>
+# <a href="http://fq09.0bit.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
 
 ***
 
