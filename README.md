@@ -8,7 +8,7 @@
 
 # <a href="http://dt01.awiki.org/206" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-01.ndcg.com/206" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-02.0bit.org/206" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq09.0bit.org/urldt0.php/206" target="_blank">>>动态网更多网址...</a>
 
