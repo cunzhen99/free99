@@ -22,4 +22,4 @@
 
 ***
 
-<p><img src="http://fq10.rm6.org/pic/yjfq0.png"></p> 
+<p><img src="http://fq.awiki.org/pic/yjfq0.png"></p> 
