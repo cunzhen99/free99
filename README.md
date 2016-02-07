@@ -22,4 +22,4 @@
 
 ***
 
-<p><img src="http://fq.awiki.org/pic/yjfq0.png"></p> 
+<p><img src="http://fq06.7a.org/pic/yjfq-20160207.png"></p> 
