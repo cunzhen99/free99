@@ -1,18 +1,18 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/02/07 测试：网址有效）
+（2016/02/08 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://dt01.awiki.org/207" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
+# <a href="http://dt01.awiki.org/208" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-02.0bit.org/207" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-02.0bit.org/208" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
 
-## <a href="http://fq09.0bit.org/urldt0.php/207" target="_blank">>>动态网更多网址...</a>
+## <a href="http://fq09.0bit.org/urldt0.php/208" target="_blank">>>动态网更多网址...</a>
 
-## <a href="http://fq10.rm6.org/urlfq0.php/207" target="_blank">>>翻墙网更多网址...</a>
+## <a href="http://fq10.rm6.org/urlfq0.php/208" target="_blank">>>翻墙网更多网址...</a>
 
 ***
 
