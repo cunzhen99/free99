@@ -16,7 +16,7 @@
 
 ***
 
-### 电脑版翻墙软件：1. <a href="http://fq05.dler.org/fgget.php?fid=fg757p.zip" target="_blank">自由门7.57版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq05.dler.org/fgget.php?fid=u1504.zip" target="_blank">无界15.04版</a>
+### 电脑版翻墙软件：1. <a href="http://fq05.dler.org/fgget.php?fid=fg758p.zip" target="_blank">自由门7.58版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq05.dler.org/fgget.php?fid=u1504.zip" target="_blank">无界15.04版</a>
 
 ### 手机安卓版翻墙软件：1. <a href="http://fq05.dler.org/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版3.2版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq05.dler.org/fgget.php?fid=um3.5.apk" target="_blank">无界一点通3.5版</a>
 
