@@ -6,9 +6,9 @@
 
 ***
 
-# <a href="https://dpz0qkvmh4im2.cloudfront.net/215" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网1</a>
+# <a href="http://dt02.t31.org/215" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网1</a>
 
-# <a href="https://d2bzfmcqtr48rz.cloudfront.net/215" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d35zgsgbb3t2t6.cloudfront.net" target="_blank">翻墙网2</a>
+# <a href="https://dt-01.ig42.org/215" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d35zgsgbb3t2t6.cloudfront.net" target="_blank">翻墙网2</a>
 
 ## <a href="https://d2tlgd8ohfphni.cloudfront.net/urldt0.php/215" target="_blank">>>动态网更多网址...</a>
 ***
