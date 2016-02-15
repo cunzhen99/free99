@@ -6,14 +6,11 @@
 
 ***
 
-# <a href="http://dt01.ber1.com/215" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
+# <a href="https://dpz0qkvmh4im2.cloudfront.net/215" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-02.0bit.org/215" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.pwnz.org" target="_blank">翻墙网2</a>
+# <a href="https://d2bzfmcqtr48rz.cloudfront.net/215" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d35zgsgbb3t2t6.cloudfront.net" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq07.inet2.org/urldt0.php/215" target="_blank">>>动态网更多网址...</a>
-
-## <a href="http://fq07.inet2.org/urlfq0.php/215" target="_blank">>>翻墙网更多网址...</a>
-
 ***
 
 ### 电脑版翻墙软件：1. <a href="http://fq05.dler.org/fgget.php?fid=fg758p.zip" target="_blank">自由门7.58版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq05.dler.org/fgget.php?fid=u1504.zip" target="_blank">无界15.04版</a>
