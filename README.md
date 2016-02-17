@@ -1,16 +1,16 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/02/16 测试：网址有效）
+（2016/02/17 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://dt02.t31.org/216" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网1</a>
+# <a href="http://dt02.t31.org/217" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-02.cpct.com/216" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d35zgsgbb3t2t6.cloudfront.net" target="_blank">翻墙网2</a>
+# <a href="http://dt-02.cpct.com/217" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d35zgsgbb3t2t6.cloudfront.net" target="_blank">翻墙网2</a>
 
-## <a href="https://d2tlgd8ohfphni.cloudfront.net/urldt0.php/216" target="_blank">>>动态网更多网址...</a>
+## <a href="https://d2tlgd8ohfphni.cloudfront.net/urldt0.php/217" target="_blank">>>动态网更多网址...</a>
 ***
 
 ### 电脑版翻墙软件：1. <a href="https://d30ukpfou3l562.cloudfront.net/fgget.php?fid=fg758p.zip" target="_blank">自由门7.58版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d30ukpfou3l562.cloudfront.net/fgget.php?fid=u1504.zip" target="_blank">无界15.04版</a>
