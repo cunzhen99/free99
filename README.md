@@ -8,7 +8,7 @@
 
 # <a href="http://dt01.688.org/221" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.k4ds.org" target="_blank">翻墙网1</a>
 
-# <a href="https://dv0baqywhdt0m.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网2</a>
+# <a href="https://d3jpdxyvzpbg4s.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网2</a>
 
 ***
 
