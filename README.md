@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://dt01.688.org/223" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq03.ig42.org" target="_blank">翻墙网1</a>
+# <a href="http://dt01.688.org/223" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.t31.org" target="_blank">翻墙网1</a>
 
 # <a href="https://d15386xf4zb0bp.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网2</a>
 
