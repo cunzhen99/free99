@@ -1,12 +1,12 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/02/23 测试：网址有效）
+（2016/02/25 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://dt01.688.org/223" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.t31.org" target="_blank">翻墙网1</a>
+# <a href="http://dt01.688.org/225" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.t31.org" target="_blank">翻墙网1</a>
 
 # <a href="https://d15386xf4zb0bp.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网2</a>
 
