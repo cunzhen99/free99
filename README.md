@@ -1,6 +1,6 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/02/28 测试：网址有效）
+（2016/02/29 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
@@ -8,7 +8,7 @@
 
 # <a href="https://d15386xf4zb0bp.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq06.dler.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt01.rcs7.org/228" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网2</a>
+# <a href="http://dt01.rcs7.org/229" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://d1kkh9rxjohuup.cloudfront.net" target="_blank">翻墙网2</a>
 
 ***
 
