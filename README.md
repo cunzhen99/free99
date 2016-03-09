@@ -8,7 +8,7 @@
 
 # <a href="http://dt01.t31.org/309" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq06.dler.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-01.ig42.org/309" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq07.inet2.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-01.icg.hk/309" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq07.inet2.org" target="_blank">翻墙网2</a>
 
 ***
 
