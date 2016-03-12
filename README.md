@@ -6,9 +6,9 @@
 
 ***
 
-# <a href="http://dt01.1bar.org/312" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq06.dler.org" target="_blank">翻墙网1</a>
+# <a href="http://dt01.1bar.org/312" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.ig42.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-01.rcs7.org/312" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq07.inet2.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-01.rcs7.org/312" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.pwnz.org" target="_blank">翻墙网2</a>
 
 ***
 
