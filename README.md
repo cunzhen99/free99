@@ -10,7 +10,7 @@
 
 # <a href="https://d1ruracj8w9067.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.pwnz.org" target="_blank">翻墙网2</a>
 
-## <a href="https://fq10.rm6.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
+## <a href="http://fq10.rm6.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
 
 ***
 
