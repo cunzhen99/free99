@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://dt01.1bar.org/317/2" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.aalk.org" target="_blank">翻墙网1</a>
+# <a href="http://dt01.7u.org/317/2" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.aalk.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-01.aalk.org/317/2" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.pwnz.org" target="_blank">翻墙网2</a>
 
