@@ -8,7 +8,7 @@
 
 # <a href="http://dtw1.dmky.org/323/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.ircii.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dtw-1.0bit.org/323/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.ig42.org" target="_blank">翻墙网2</a>
+# <a href="http://dtw-1.0bit.org/323/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq02.no-x.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq10.rm6.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
 
