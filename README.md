@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://dtw1.dmky.org/323/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.ircii.org" target="_blank">翻墙网1</a>
+# <a href="http://dtw1.dmky.org/323/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.idigo.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dtw-1.0bit.org/323/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq.awiki.org" target="_blank">翻墙网2</a>
 
