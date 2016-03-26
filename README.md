@@ -2,7 +2,7 @@
 # 电脑、手机一键翻墙
 （2016/03/26 测试：网址有效）
 
-####永久短网址：https://git.io/free
+####永久短网址：https://git.io/fqw
 
 ***
 
@@ -20,4 +20,4 @@
 
 ***
 
-<p><img src="http://fq05.dler.org/pic/yjfq-20160207.png"></p> 
+<p><img src="http://fq05.dler.org/pic/yjfq-20160327.png"></p> 
