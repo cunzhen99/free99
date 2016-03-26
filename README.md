@@ -2,13 +2,13 @@
 # 电脑、手机一键翻墙
 （2016/03/26 测试：网址有效）
 
-####永久短网址：https://git.io/fqw
+####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://dt01.ber1.com/326/2" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.idigo.org" target="_blank">翻墙网1</a>
+# <a href="http://dt01.ber1.com/326/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.idigo.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-1.t31.org/326/2" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq.awiki.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-1.t31.org/326/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq.awiki.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq10.rm6.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
 
@@ -20,4 +20,4 @@
 
 ***
 
-<p><img src="http://fq05.dler.org/pic/yjfq-20160327.png"></p> 
+<p><img src="http://fq05.dler.org/pic/yjfq-20160207.png"></p> 
