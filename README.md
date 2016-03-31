@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://dt01.twlab.org/330/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.idigo.org" target="_blank">翻墙网1</a>
+# <a href="http://dtw1.twlab.org/330/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.idigo.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-01.a11y.com/330/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.newca.org" target="_blank">翻墙网2</a>
 
