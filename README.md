@@ -8,7 +8,7 @@
 
 # <a href="http://dt-01.eymc.org/403/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.idigo.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-2.rcs7.org/403/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.newca.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-2.rcs7.org/403/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-03.87w.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq10.rm6.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
 
