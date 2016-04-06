@@ -6,7 +6,7 @@
 
 ***
 
-# <a href="http://dt-1.adix.com/406/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq01.alexi.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-1.adix.com/406/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-2.87w.org/406/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.newca.org" target="_blank">翻墙网2</a>
 
