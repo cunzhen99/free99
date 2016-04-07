@@ -1,14 +1,14 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/04/06 测试：网址有效）
+（2016/04/07 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
 ***
 
-# <a href="http://dt01.ert99.com/406/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
+# <a href="http://dt01.ert99.com/407/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-1.adix.com/406/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.newca.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-1.adix.com/407/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.newca.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq10.rm6.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
 
