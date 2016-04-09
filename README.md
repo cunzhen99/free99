@@ -6,9 +6,9 @@
 
 ***
 
-# <a href="http://dt1.eymc.org/409/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-1.ixyo.com/409/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-1.ixyo.com/409/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.newca.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-2.jlwcc.com/409/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.newca.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq-03.87w.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
 
