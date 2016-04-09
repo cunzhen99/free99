@@ -21,4 +21,4 @@
 
 ***
 
-<p><img src="http://fq-05.net95.org/pic/yjfq-20160328new.png"></p> 
+<img src="http://fq-05.net95.org/pic/yjfq-20160328new.png">
