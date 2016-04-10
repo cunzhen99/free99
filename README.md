@@ -1,15 +1,15 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/04/09 测试：网址有效）
+（2016/04/10 测试：网址有效）
 
 ####永久短网址：https://git.io/free
 
 #####（微信请转到浏览器打开：长按屏幕点“在浏览器打开”或复制短网址到浏览器）
 
 ***
-# <a href="http://dt-1.ixyo.com/409/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-1.ixyo.com/410/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-2.jlwcc.com/409/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.newca.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-2.jlwcc.com/410/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.newca.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq-03.87w.org/urldt0.php" target="_blank">>>动态网更多网址...</a>
 
