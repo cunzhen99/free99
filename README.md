@@ -4,7 +4,7 @@
 
 ####永久短网址：https://git.io/free
 
-######（微信请转到浏览器打开：长按屏幕复制短网址或点“在浏览器打开”）
+#####（微信用户请转到浏览器打开：长按屏幕复制短网址或点“在浏览器打开”或点微信又上角“省略号”按钮）
 
 ***
 # <a href="http://dt-1.ixyo.com/409/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
