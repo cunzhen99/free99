@@ -7,7 +7,7 @@
 #####（微信请转到浏览器打开：点右上角“省略号”按钮或长按屏幕）
 
 ***
-# <a href="http://dt-1.tbz1.com/413/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-1.net95.org/413/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.uzon.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-2.aj3t.com/413/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.newca.org" target="_blank">翻墙网2</a>
 
