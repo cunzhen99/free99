@@ -7,17 +7,17 @@
 #####（微信请转到浏览器打开：点右上角“省略号”按钮或长按屏幕）
 
 ***
-# <a href="http://dt-1.uco.tw/415/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.newca.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-1.uco.tw/415/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.arph.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-2.zapto.tw/415/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.87w.org" target="_blank">翻墙网2</a>
 
-## <a href="http://fq-3.arph.org/urldt0.php/412" target="_blank">>>动态网更多网址...</a>
+## <a href="http://fq-3.net95.org/urldt0.php/412" target="_blank">>>动态网更多网址...</a>
 
 ***
 
-### 电脑版翻墙软件：1. <a href="http://fq-4.net95.org/fgget.php?fid=fg758p.zip" target="_blank">自由门7.58版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq-4.net95.org/fgget.php?fid=u1504.zip" target="_blank">无界15.04版</a>
+### 电脑版翻墙软件：1. <a href="http://fq-4.newca.org/fgget.php?fid=fg758p.zip" target="_blank">自由门7.58版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq-4.newca.org/fgget.php?fid=u1504.zip" target="_blank">无界15.04版</a>
 
-### 手机安卓版翻墙软件：1. <a href="http://fq-4.net95.org/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版3.2版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq-4.net95.org/fgget.php?fid=um3.5.apk" target="_blank">无界一点通3.5版</a>
+### 手机安卓版翻墙软件：1. <a href="http://fq-4.newca.org/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版3.2版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq-4.newca.org/fgget.php?fid=um3.5.apk" target="_blank">无界一点通3.5版</a>
 
 ***
 
