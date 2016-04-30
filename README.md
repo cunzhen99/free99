@@ -9,7 +9,7 @@
 ***
 # <a href="http://dt-1.from.tw/430/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fqw-1.sf-n.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-02.bia.tw/430/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fqw-2.wroth.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-02.bia.tw/430/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.bia.tw" target="_blank">翻墙网2</a>
 
 ## <a href="http://fqw-3.newca.org/urldt0.php/430" target="_blank">>>动态网更多网址...</a>
 
