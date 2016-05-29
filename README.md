@@ -2,7 +2,7 @@
 # 电脑、手机一键翻墙
 （2016/05/29 测试：网址有效）
 
-####永久短网址：https://git.io/free
+####固定短网址：https://is.gd/free99
 
 #####（微信请转到浏览器打开：点右上角“省略号”按钮或长按屏幕）
 
@@ -25,4 +25,4 @@
 
 ***
 
-<p><img src="http://fq-5.uzon.org/pic/yjfq-20160328new.png"></p> 
+<p><img src="http://fq-5.uzon.org/pic/yjfq-20160529new.png"></p> 
