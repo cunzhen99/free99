@@ -25,4 +25,4 @@
 
 ***
 
-<p><img src="http://fq-5.uzon.org/pic/yjfq-20160529ok.png"></p> 
+<p><img src="http://fq-5.uzon.org/pic/yjfq-20160529.png"></p> 
