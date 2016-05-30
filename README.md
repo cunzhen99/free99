@@ -1,17 +1,17 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/05/29 测试：网址有效）
+（2016/05/30 测试：网址有效）
 
 ####固定短网址：https://bit.ly/fq999
 
 #####（微信请转到浏览器打开：点右上角“省略号”按钮或长按屏幕）
 
 ***
-# <a href="http://dt-01.m0n.org/529/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.svws.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-01.m0n.org/530/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.svws.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-02.hesti.org/529/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.ev4g.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-02.hesti.org/530/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.ev4g.org" target="_blank">翻墙网2</a>
 
-## <a href="http://fqw-3.newca.org/urldt0.php/529" target="_blank">>>动态网更多网址...</a>
+## <a href="http://fqw-3.newca.org/urldt0.php/530" target="_blank">>>动态网更多网址...</a>
 
 ***
 
