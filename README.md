@@ -2,7 +2,9 @@
 # 电脑、手机一键翻墙
 （2016/05/31 测试：网址有效）
 
-####固定短网址：https://bit.ly/fq999
+####固定短网址1：https://bit.ly/fq999
+
+####固定短网址2：https://git.io/free
 
 #####（微信请转到浏览器打开：点右上角“省略号”按钮或长按屏幕）
 
@@ -25,4 +27,4 @@
 
 ***
 
-<p><img src="http://fq-5.uzon.org/pic/yjfq-20160529.png"></p> 
+<p><img src="http://fq-5.uzon.org/pic/yjfq-20160531new.png"></p> 
