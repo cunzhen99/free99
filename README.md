@@ -1,6 +1,6 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/06/03 更新，网址有效）
+（2016/06/04 更新，网址有效）
 
 ####固定短网址1：https://bit.ly/fq999
 
@@ -9,7 +9,7 @@
 #####（微信如打不开，请转到浏览器打开：点右上角“省略号”按钮再点“在浏览中打开”）
 
 ***
-# <a href="https://d3dzc4mixwjs7x.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.uzon.org" target="_blank">翻墙网1</a>
+# <a href="https://d1qvrxlm4lljve.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.uzon.org" target="_blank">翻墙网1</a>
 
 # <a href="https://d124pthbpm4nbg.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.arph.org" target="_blank">翻墙网2</a>
 
