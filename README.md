@@ -9,9 +9,9 @@
 #####（微信如打不开，请转到浏览器打开：点右上角“省略号”按钮再点“在浏览中打开”）
 
 ***
-# <a href="https://d1crjwo9o3k4ao.cloudfront.net/605" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.uzon.org" target="_blank">翻墙网1</a>
+# <a href="https://d1crjwo9o3k4ao.cloudfront.net/605/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.uzon.org" target="_blank">翻墙网1</a>
 
-# <a href="https://dnlzktnpv20t6.cloudfront.net/605" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.arph.org" target="_blank">翻墙网2</a>
+# <a href="https://dnlzktnpv20t6.cloudfront.net/605/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.arph.org" target="_blank">翻墙网2</a>
 
 ***
 
