@@ -1,6 +1,6 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/06/06 更新，网址有效）
+（2016/06/07 更新，网址有效）
 
 ####固定短网址1：https://git.io/free
 
@@ -9,9 +9,9 @@
 #####（微信如打不开，请复制到浏览器中打开）
 
 ***
-# <a href="http://dt-1.season.tw/606/2" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.uzon.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-1.season.tw/607/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.arph.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-2.ad5.hk/606/2" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.arph.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-2.ad5.hk/607/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.uzon.org" target="_blank">翻墙网2</a>
 
 
 ***
