@@ -9,9 +9,9 @@
 #####（微信如打不开，请复制到浏览器中打开）
 
 ***
-# <a href="http://dt-01.ad5.hk/608/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.newca.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-01.ad5.hk/608/2" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.newca.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-2.season.tw/608/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.svws.org" target="_blank">翻墙网2</a>
+# <a href="http://dt-2.season.tw/608/2" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.svws.org" target="_blank">翻墙网2</a>
 
 
 ***
