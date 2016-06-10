@@ -2,16 +2,17 @@
 # 电脑、手机一键翻墙
 （2016/06/10 更新，网址有效）
 
+#####（微信如打不开，请转到浏览器中打开）
+
 ####固定短网址1：https://git.io/free
 
 ####固定短网址2：https://bit.ly/fq999
 
-#####（微信如打不开，请复制到浏览器中打开）
 
 ***
-# <a href="http://dt-1.ha2.tw/609/3" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.newca.org" target="_blank">翻墙网1</a>
+# <a href="https://d57q1mwtohl2e.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.newca.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dt-2.season.tw/609/3" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.svws.org" target="_blank">翻墙网2</a>
+# <a href="https://d2rcero5ltvn4b.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.svws.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq-03.arph.org/urldt.php/609/3" target="_blank">>>动态网随机网址...</a>
 
