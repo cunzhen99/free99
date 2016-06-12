@@ -1,6 +1,6 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/06/11 测试，网址有效）
+（2016/06/12 测试，网址有效）
 
 #####（微信如打不开，请转到浏览器中打开）
 
@@ -10,11 +10,11 @@
 
 
 ***
-# <a href="https://d57q1mwtohl2e.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.newca.org" target="_blank">翻墙网1</a>
+# <a href="https://d3hsy6pvxmtbtk.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.myapl.org" target="_blank">翻墙网1</a>
 
-# <a href="https://d2rcero5ltvn4b.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.svws.org" target="_blank">翻墙网2</a>
+# <a href="https://d37tuu6vp4w3go.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.defeo.org" target="_blank">翻墙网2</a>
 
-## <a href="http://fq-03.arph.org/urldt.php/609/3" target="_blank">>>动态网随机网址...</a>
+## <a href="http://fq-3.mabil.org/urldt.php/609/3" target="_blank">>>动态网随机网址...</a>
 
 ***
 
