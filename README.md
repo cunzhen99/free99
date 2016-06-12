@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="http://dt-1.ha2.tw/612/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.myapl.org" target="_blank">翻墙网1</a>
+# <a href="http://dt-01.eruru.tw/612/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.myapl.org" target="_blank">翻墙网1</a>
 
 # <a href="http://dt-2.season.tw/612/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.defeo.org" target="_blank">翻墙网2</a>
 
