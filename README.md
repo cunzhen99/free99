@@ -14,7 +14,7 @@
 
 # <a href="http://dt-02.season.tw/613/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.myapl.org" target="_blank">翻墙网2</a>
 
-## <a href="http://fq-03.uzon.org/urldt.php/609/3" target="_blank">>>动态网随机网址...</a>
+## <a href="http://fq-03.uzon.org/urldt.php/613/1" target="_blank">>>动态网随机网址...</a>
 
 ***
 
