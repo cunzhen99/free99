@@ -10,9 +10,9 @@
 
 
 ***
-# <a href="http://dtw-1.stg.hk/615/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fqw-1.defeo.org" target="_blank">翻墙网1</a>
+# <a href="http://dtw-1.cwf1.com/615/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fqw-1.defeo.org" target="_blank">翻墙网1</a>
 
-# <a href="http://dtw-2.cwf1.com/615/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fqw-2.myapl.org" target="_blank">翻墙网2</a>
+# <a href="http://dtw-2.stg.hk/615/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fqw-2.myapl.org" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq-3.tfsu.tw/urldt.php/615/1" target="_blank">>>动态网随机网址...</a>
 
