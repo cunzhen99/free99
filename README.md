@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="http://dt-1.6saas.org/617/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.gnet.hk" target="_blank">翻墙网1</a>
+# <a href="http://dt-1.vip.hk/617/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.gnet.hk" target="_blank">翻墙网1</a>
 
 # <a href="http://dtw-2.stg.hk/617/1" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fqw-2.myapl.org" target="_blank">翻墙网2</a>
 
