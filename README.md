@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="https://d1iqj01qbbk9l4.cloudfront.net/623" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://	fq-1.7a.org" target="_blank">翻墙网1</a>
+# <a href="https://d1iqj01qbbk9l4.cloudfront.net/623" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.7a.org" target="_blank">翻墙网1</a>
 
 # <a href="https://d3gw0q6vtx9j6q.cloudfront.net/623" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.mnst.tw" target="_blank">翻墙网2</a>
 
