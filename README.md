@@ -12,9 +12,9 @@
 ***
 # <a href="https://d1bhiyh5chmpi2.cloudfront.net" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.fufu.hk" target="_blank">翻墙网1</a>
 
-# <a href="https://dz4apdt8glr32.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.stg.hk" target="_blank">翻墙网2</a>
+# <a href="https://dz4apdt8glr32.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.stg.hk" target="_blank">翻墙网2</a>
 
-## <a href="http://fq-3.durun.org/urldt.php/623/1" target="_blank">>>动态网随机网址...</a>
+## <a href="http://fq-03.durun.org/urldt.php/623/1" target="_blank">>>动态网随机网址...</a>
 
 ***
 
