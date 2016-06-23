@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="http://x.co/dt623" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://x.co/fqw01" target="_blank">翻墙网1</a>
+# <a href="http://x.co/dt623" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://x.co/fqw623" target="_blank">翻墙网1</a>
 
 # <a href="http://x.co/dt623b" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://x.co/fqw623b" target="_blank">翻墙网2</a>
 
