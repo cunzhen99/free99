@@ -12,7 +12,7 @@
 ***
 # <a href="https://s3.tiandk.net/624" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d1vkjznezygnro.cloudfront.net" target="_blank">翻墙网1</a>
 
-# <a href="http://d1fzbmg7azaney.cloudfront.net" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d35lzz28pt138e.cloudfront.net" target="_blank">翻墙网2</a>
+# <a href="https://d1r1p0c0whj8wf.cloudfront.net/dtsj1.php/624" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d35lzz28pt138e.cloudfront.net" target="_blank">翻墙网2</a>
 
 ## <a href="https://dpgfe977t0zwo.cloudfront.net/urldt.php/624" target="_blank">>>动态网随机网址...</a>
 
