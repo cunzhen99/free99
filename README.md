@@ -12,7 +12,7 @@
 ***
 # <a href="https://s3.tiandk.net/625/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-1.mnst.tw/fqsj.php/625" target="_blank">翻墙网1</a>
 
-# <a href="https://dkg2n9fcfwqo6.cloudfront.net/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.6od.org/fqsj.php/625" target="_blank">翻墙网2</a>
+# <a href="http://fq-5.919.tw/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.6od.org/fqsj.php/625" target="_blank">翻墙网2</a>
 
 ## <a href="http://fq-3.nctlv.org/fqsj.php?urlt=urldt.php" target="_blank">>>动态网随机网址...</a>
 
