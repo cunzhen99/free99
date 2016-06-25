@@ -10,11 +10,11 @@
 
 
 ***
-# <a href="https://s3.tiandk.net/625/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-01.mnst.tw/fqsj.php/625" target="_blank">翻墙网1</a>
+# <a href="https://s3.tiandk.net/625/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d2sqxeyfhda2vw.cloudfront.net/fqsj.php/625" target="_blank">翻墙网1</a>
 
-# <a href="http://fq-05.919.tw/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.6od.org/fqsj.php/625" target="_blank">翻墙网2</a>
+# <a href="https://d30pgtt8deaqk7.cloudfront.net/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3ibs68n75kt7y.cloudfront.net/fqsj.php/625" target="_blank">翻墙网2</a>
 
-## <a href="http://fq-03.nctlv.org/fqsj.php?urlt=urldt.php" target="_blank">>>动态网随机网址...</a>
+## <a href="https://d16vgp9ikwdheu.cloudfront.net/fqsj.php?urlt=urldt.php" target="_blank">>>动态网随机网址...</a>
 
 ***
 
@@ -28,4 +28,4 @@
 
 ***
 
-<p><img src="http://fq-05.919.tw/pic/yjfq-20160613ok.png"></p> 
+<p><img src="http://fq-04.mabil.org/pic/yjfq-20160613ok.png"></p> 
