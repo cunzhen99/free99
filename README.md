@@ -1,6 +1,6 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/06/25 更新，网址有效）
+（2016/06/26 更新，网址有效）
 
 #####（微信如打不开，请转到浏览器中打开）
 
@@ -10,11 +10,11 @@
 
 
 ***
-# <a href="https://s3.tiandk.net/625/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d2sqxeyfhda2vw.cloudfront.net/fqsj.php/625" target="_blank">翻墙网1</a>
+# <a href="https://s4.tiandk.net/626/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://fq1.fq99.org" target="_blank">翻墙网1</a>
 
-# <a href="https://d30pgtt8deaqk7.cloudfront.net/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3ibs68n75kt7y.cloudfront.net/fqsj.php/625" target="_blank">翻墙网2</a>
+# <a href="https://d2sqxeyfhda2vw.cloudfront.net/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3ibs68n75kt7y.cloudfront.net/fqsj.php/626" target="_blank">翻墙网2</a>
 
-## <a href="https://d16vgp9ikwdheu.cloudfront.net/fqsj.php?urlt=urldt.php" target="_blank">>>动态网随机网址...</a>
+## <a href="https://d30pgtt8deaqk7.cloudfront.net/fqsj.php?urlt=urldt.php" target="_blank">>>动态网随机网址...</a>
 
 ***
 
