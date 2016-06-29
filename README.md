@@ -1,6 +1,6 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/06/28 更新，网址有效）
+（2016/06/29 更新，网址有效）
 
 #####（微信如打不开，请转到浏览器中打开）
 
@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="https://d5.tiandk.net/628/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://fq2.fq99.org" target="_blank">翻墙网1</a>
+# <a href="https://d4.tiandk.net/629/1" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://fq2.fq99.org" target="_blank">翻墙网1</a>
 
 # <a href="https://fq4.fq99.org/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://fq3.fq99.org" target="_blank">翻墙网2</a>
 
