@@ -10,11 +10,11 @@
 
 
 ***
-# <a href="https://f1.fq99.org/dtsj1.php?tid=630" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://f2.fq99.org/fqsj.php/630/1" target="_blank">翻墙网1</a>
+# <a href="https://d2sqxeyfhda2vw.cloudfront.net/dtsj1.php?tid=630" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d3ibs68n75kt7y.cloudfront.net/fqsj.php/630/1" target="_blank">翻墙网1</a>
 
-# <a href="https://f3.fq99.org/dtsj.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://f4.fq99.org/fqsj.php/630/2" target="_blank">翻墙网2</a>
+# <a href="https://d30pgtt8deaqk7.cloudfront.net/dtsj.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d16vgp9ikwdheu.cloudfront.net/fqsj.php/630/2" target="_blank">翻墙网2</a>
 
-## <a href="https://f5.fq99.org/fqsj.php?urlt=urldt.php" target="_blank">>>动态网随机网址...</a>
+## <a href="https://d2fff0lbno8t3h.cloudfront.net/fqsj.php?urlt=urldt.php" target="_blank">>>动态网随机网址...</a>
 
 ***
 
