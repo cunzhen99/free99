@@ -10,7 +10,7 @@
 
 
 ***
-# <a href="http://fq-01.mnst.tw/dtsj1.php?tid=630" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.6od.org/fqsj.php/630/1" target="_blank">翻墙网1</a>
+# <a href="http://fq-1.htec.hk/dtsj1.php?tid=630" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.vyatta.tw/fqsj.php/630/1" target="_blank">翻墙网1</a>
 
 # <a href="http://fq-3.nctlv.org/dtsj.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-04.mabil.org/fqsj.php/630/2" target="_blank">翻墙网2</a>
 
