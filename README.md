@@ -14,7 +14,7 @@
 
 # <a href="https://d2ecr8op1u8ru5.cloudfront.net/dtsj1.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d224ywur5zqg2v.cloudfront.net/fqsj.php/630/2" target="_blank">翻墙网2</a>
 
-## <a href="https://dkd51bbuy9pod.cloudfront.net/urldt.php" target="_blank">>>动态网随机网址...</a>
+## <a href="https://dkd51bbuy9pod.cloudfront.net/fqsj.php?urlt=urldt.php" target="_blank">>>动态网随机网址...</a>
 
 ***
 
