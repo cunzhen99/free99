@@ -10,9 +10,9 @@
 
 
 ***
-# <a href="http://fq-01.pona.tw/dtsj1.php?tid=701" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.ewebs.tw/fqsj.php/701/1" target="_blank">翻墙网1</a>
+# <a href="http://fq-01.htec.hk/dtsj1.php?tid=701" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-02.kayzone.tw/fqsj.php/701/1" target="_blank">翻墙网1</a>
 
-# <a href="http://fq-03.kayzone.tw/dtsj.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-04.htec.hk/fqsj.php/701/2" target="_blank">翻墙网2</a>
+# <a href="http://fq-03.ewebs.tw/dtsj.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-04.pona.tw/fqsj.php/701/2" target="_blank">翻墙网2</a>
 
 ***
 
