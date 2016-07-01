@@ -12,7 +12,7 @@
 ***
 # <a href="http://fq-1.htec.hk/dtsj1.php?tid=701" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-2.vyatta.tw/fqsj.php/701/1" target="_blank">翻墙网1</a>
 
-# <a href="http://fq-3.nctlv.org/dtsj.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-4.pona.tw/fqsj.php/701/2" target="_blank">翻墙网2</a>
+# <a href="http://fq-3.knick.tw/dtsj.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="http://fq-4.pona.tw/fqsj.php/701/2" target="_blank">翻墙网2</a>
 
 ***
 
