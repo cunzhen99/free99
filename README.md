@@ -10,9 +10,16 @@
 
 
 ***
-# <a href="https://d3t480xwuz02vb.cloudfront.net/dtsj1.php?tid=701" target="_blank">动态网1</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://d2hbid64mjm09i.cloudfront.net/fqsj.php/701/1" target="_blank">翻墙网1</a>
 
-# <a href="https://d1bw3gftmbvgd0.cloudfront.net/dtsj.php" target="_blank">动态网2</a>&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://dmnv9m48fhqhp.cloudfront.net/fqsj.php/701/2" target="_blank">翻墙网2</a>
+# <a href="https://github.com/zhen99425/free1/blob/master/README.md" target="_blank">翻墙特殊入口1</a>
+
+# <a href="https://github.com/zhen99425/free2/blob/master/README.md" target="_blank">翻墙特殊入口2</a>
+
+# <a href="https://github.com/zhen99425/free3/blob/master/README.md" target="_blank">翻墙特殊入口3</a>
+
+# <a href="https://github.com/zhen99425/free4/blob/master/README.md" target="_blank">翻墙特殊入口4</a>
+
+# <a href="https://github.com/zhen99425/free5/blob/master/README.md" target="_blank">翻墙特殊入口5</a>
 
 ***
 
