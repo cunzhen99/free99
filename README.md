@@ -6,7 +6,7 @@
 
 ####固定短网址1：https://git.io/free
 
-####固定短网址2：https://bit.ly/fq999
+####固定短网址2：http://x.co/fqw99
 
 
 ***
@@ -33,4 +33,4 @@
 
 ***
 
-<p><img src="http://fq-05.919.tw/pic/yjfq-20160613ok.png"></p> 
+<p><img src="http://fq-05.919.tw/pic/yjfq-20160702ok.png"></p> 
