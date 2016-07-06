@@ -24,7 +24,7 @@
 ***
 
 ### 电脑版翻墙软件：
-###&nbsp;&nbsp;1. <a href="http://fq-05.919.tw/fgget.php?fid=fg758p.zip" target="_blank">自由门7.58版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq-05.919.tw/fgget.php?fid=u1504.zip" target="_blank">无界15.04版</a>
+###&nbsp;&nbsp;1. <a href="http://fq-05.919.tw/fgget.php?fid=fg759p.zip" target="_blank">自由门7.59版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq-05.919.tw/fgget.php?fid=u1601.zip" target="_blank">无界16.01版</a>
 ###&nbsp;&nbsp;3. <a href="http://fq-05.919.tw/fgget.php?fid=GreeniPPOTV_Setup_Ver12Build944b.zip" target="_blank">爱博电视(0944版)</a>
 
 ### 手机安卓版翻墙软件：
