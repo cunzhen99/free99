@@ -29,7 +29,7 @@
 
 ### 手机安卓版翻墙软件：
 ###&nbsp;&nbsp;1. <a href="http://fq-05.919.tw/fgget.php?fid=fgma32.apk" target="_blank">自由门安卓版3.2版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="http://fq-05.919.tw/fgget.php?fid=um3.7.apk" target="_blank">无界一点通3.7版</a>
-###&nbsp;&nbsp;3. <a href="http://fq-05.919.tw/fgget.php?fid=iNTD_TV.apk" target="_blank">安卓版电视iNTD TV(V2.1.3)</a>
+###&nbsp;&nbsp;3. <a href="http://fq-05.919.tw/fgget.php?fid=iNTD_TV.apk" target="_blank">安卓版电视iNTD TV(V2.1.6)</a>
 
 ***
 
