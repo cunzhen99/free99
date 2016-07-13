@@ -12,7 +12,7 @@
 ***
 
 
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq1/blob/master/README.md" target="_blank">翻墙特殊入口一</a>
+# &nbsp;&nbsp;<a href="httpx://x.co/fqw01" target="_blank">翻墙特殊入口一</a>
 
 # &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq2/blob/master/README.md" target="_blank">翻墙特殊入口二</a>
 
