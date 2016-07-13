@@ -4,9 +4,9 @@
 
 #####（微信如打不开，请转到浏览器中打开）
 
-####固定短网址1：https://git.io/free
+##固定短网址1：https://git.io/free
 
-####固定短网址2：http://x.co/fqw99
+##固定短网址2：http://x.co/fqw99
 
 ***
 
