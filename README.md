@@ -1,6 +1,6 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/07/12 更新，网址有效）
+（2016/07/13 更新，网址有效）
 
 #####（微信如打不开，请转到浏览器中打开）
 
@@ -12,11 +12,11 @@
 ***
 
 
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free1/blob/master/README.md" target="_blank">翻墙特殊入口一</a>
+# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq1/blob/master/README.md" target="_blank">翻墙特殊入口一</a>
 
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free3/blob/master/README.md" target="_blank">翻墙特殊入口二</a>
+# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq2/blob/master/README.md" target="_blank">翻墙特殊入口二</a>
 
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free4/blob/master/README.md" target="_blank">翻墙特殊入口三</a>
+# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq3/blob/master/README.md" target="_blank">翻墙特殊入口三</a>
 
 
 ***
