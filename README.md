@@ -8,17 +8,6 @@
 
 ####固定短网址2：http://x.co/fqw99
 
-
-***
-
-
-# &nbsp;&nbsp;<a href="httpx://x.co/fqw01" target="_blank">翻墙特殊入口一</a>
-
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq2/blob/master/README.md" target="_blank">翻墙特殊入口二</a>
-
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/fq3/blob/master/README.md" target="_blank">翻墙特殊入口三</a>
-
-
 ***
 
 ### 电脑版翻墙软件：
