@@ -1,26 +1,14 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/07/14 更新，网址有效）
-
-#####（微信如打不开，请转到浏览器中打开）
-
-####固定短网址1：https://git.io/free
-
-####固定短网址2：http://x.co/fqw99
-
+（2016/07/15 更新，网址有效）
 
 ***
 
+<p><img src="https://d23aci1xbfhhbf.cloudfront.net/pic/yjfq-20160715ok.png"></p> 
 
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free1/blob/master/README.md?1" target="_blank">翻出网墙（一）</a>
-
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free2/blob/master/README.md?2" target="_blank">翻出网墙（二）</a>
-
-# &nbsp;&nbsp;<a href="https://github.com/zhen99425/free3/blob/master/README.md?3" target="_blank">翻出网墙（三）</a>
-
+#####（以上网址请输入浏览器中打开）
 
 ***
-
 
 ### 电脑版翻墙软件：
 ###&nbsp;&nbsp;1. <a href="https://d23aci1xbfhhbf.cloudfront.net/fgget.php?fid=fg759p.zip" target="_blank">自由门7.59版</a>&nbsp;&nbsp;&nbsp;&nbsp;2. <a href="https://d23aci1xbfhhbf.cloudfront.net/fgget.php?fid=U1603.zip" target="_blank">无界16.03版</a>
@@ -32,4 +20,4 @@
 
 ***
 
-<p><img src="https://d23aci1xbfhhbf.cloudfront.net/pic/yjfq-20160702ok.png"></p> 
+
