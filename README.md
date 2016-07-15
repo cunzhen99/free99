@@ -1,12 +1,9 @@
 # 自由上网简易方法
 # 电脑、手机一键翻墙
-（2016/07/15 更新，网址有效）
-
-***
 
 <p><img src="https://d23aci1xbfhhbf.cloudfront.net/pic/yjfq-20160715ok.png"></p> 
 
-#####（以上网址请输入浏览器中打开）
+####（以上网址请输入浏览器中打开）
 
 ***
 
@@ -19,5 +16,3 @@
 ###&nbsp;&nbsp;3. <a href="https://d23aci1xbfhhbf.cloudfront.net/fgget.php?fid=iNTD_TV.apk" target="_blank">安卓版电视iNTD TV(V2.1.6)</a>
 
 ***
-
-
