@@ -4,6 +4,8 @@
 
 ***
 
-# 永久短网址： http://git.io/free
+# 永久短网址： https://git.io/free
+
+# 固定短网址： https://bit.ly/fqw123
 
 ####（微信如打不开，请转到浏览器中打开）
