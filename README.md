@@ -4,9 +4,7 @@
 
 （2017/09/05 测试，网址有效）
 
-固定短网址1：https://bit.ly/fqw123
-
-固定短网址2：https://git.io/free
+固定短网址：https://git.io/free99
 
 ### （微信如打不开，请转到浏览器打开）
 
@@ -17,8 +15,8 @@
 
 
 
-# &nbsp;&nbsp; <a href="http://ft291265127.fwq-tz1001.xyz/fwqtz01.html?t=090500132554 " target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="http://ft1498826209.fwq-tz1002.xyz/fwqtz02.html?t=09050019193 " target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="http://ft2673815871.fwq-tz1001.xyz/fwqtz01.html?t=090500123933 " target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="http://ft1841114955.fwq-tz1002.xyz/fwqtz02.html?t=090500123083 " target="_blank">自由上网入口2</a>
 ***
 
 ### 请记住下图中固定短网址：
