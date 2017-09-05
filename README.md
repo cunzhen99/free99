@@ -2,7 +2,7 @@
 
 # 电脑、手机一键翻墙
 
-（2017/08/30 测试，网址有效）
+（2017/09/05 测试，网址有效）
 
 固定短网址1：https://bit.ly/fqw123
 
@@ -17,13 +17,13 @@
 
 
 
-# &nbsp;&nbsp; <a href=" " target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="http://ft3271819589.fwq-tz1002.xyz/fwqtz02.html?t=090500122820 " target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="http://ft87812615.fwq-tz1001.xyz/fwqtz01.html?t=090500113833 " target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="http://ft165865882.fwq-tz1002.xyz/fwqtz02.html?t=09050015003 " target="_blank">自由上网入口2</a>
 ***
 
 ### 请记住下图中固定短网址：
 
-<img src="https://s3-ap-northeast-1.amazonaws.com/fqtz-01/yjfq-20170419ok.png" /> 
+<img src="https://s3-us-west-2.amazonaws.com/fwq-1001/yjfq-20170905okok.png" /> 
 
 
 ***
