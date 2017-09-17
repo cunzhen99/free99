@@ -2,7 +2,7 @@
 
 # 电脑、手机一键翻墙
 
-（2017/09/05 测试，网址有效）
+（2017/09/16 测试，网址有效）
 
 固定短网址：https://git.io/free99
 
@@ -15,8 +15,8 @@
 
 
 
-# &nbsp;&nbsp; <a href="http://ft210804675.fwq-tz1001.xyz/fwqtz01.html?t=0905001383 " target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="http://ft185225754.fwq-tz1002.xyz/fwqtz02.html?t=090500123101 " target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="http://ft2976613780.fwq-tz1003.online/fwqtz01.html?t=09160011077 " target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="http://ft2085525084.fwq-tz1004.online/fwqtz02.html?t=09160014175 " target="_blank">自由上网入口2</a>
 ***
 
 ### 请记住下图中固定短网址：
