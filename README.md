@@ -15,8 +15,8 @@
 
 
 
-# &nbsp;&nbsp; <a href="http://ft205181277.fwq-tz-1001.info/fwqtz01.html?t=10090017029 " target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="http://ft125119632.fwq-tz-1002.info/fwqtz02.html?t=100900123502 " target="_blank">自由上网入口2</a>
+# &nbsp;&nbsp; <a href="http://ft84387484.fwq-tz-1001.info/fwqtz01.html?t=100900120557 " target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="http://ft820723293.fwq-tz-1002.info/fwqtz02.html?t=100900117954 " target="_blank">自由上网入口2</a>
 ***
 
 ### 请记住下图中固定短网址：
