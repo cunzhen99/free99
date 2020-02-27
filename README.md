@@ -20,7 +20,7 @@
 # &nbsp;&nbsp; <a href="https://github.com/jyg66/4/wiki" target="_blank">自由上网入口3</a>
 ***
 
-### 请记住本網站固定短网址：
+### 请记住本網站短网址，注意是https：
 
 ## https://git.io/free99
 
