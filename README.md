@@ -17,7 +17,7 @@
 
 # &nbsp;&nbsp; <a href="https://xh.dwwwe.cf/?8g=HncCLgfatu0SDrw&zu6Oq=8ymQ&499Rt3QPI=IKCVqN4U&3ij9cvwbP=wTuwAj1gde&XBiaI=Rt" target="_blank">自由上网入口1</a>
 # &nbsp;&nbsp; <a href="https://github.com/begood0513/goodnews/blob/master/README.md" target="_blank">自由上网入口2</a>
-# &nbsp;&nbsp; <a href="https://github.com/oGate2/oo/blob/master/README.md" target="_blank">自由上网入口3</a>
+# &nbsp;&nbsp; <a href="https://github.com/jyg66/4/wiki" target="_blank">自由上网入口3</a>
 ***
 
 ### 请记住本網站固定短网址：
