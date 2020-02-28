@@ -15,9 +15,9 @@
 
 
 
-# &nbsp;&nbsp; <a href="https://dtw01.dtw01.workers.dev" target="_blank">自由上网入口1</a>
-# &nbsp;&nbsp; <a href="https://github.com/begood0513/goodnews/blob/master/README.md" target="_blank">自由上网入口2</a>
-# &nbsp;&nbsp; <a href="https://github.com/jyg66/4/wiki" target="_blank">自由上网入口3</a>
+# &nbsp;&nbsp; <a href="https://github.com/begood0513/goodnews/blob/master/README.md" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="https://github.com/jyg66/4/wiki" target="_blank">自由上网入口2</a>
+
 ***
 
 ### 请记住本網站短网址，注意是https：
