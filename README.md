@@ -14,7 +14,7 @@
 
 
 
-# &nbsp;&nbsp; <a href="https://qt.xswet.gq/?_uk4VBCLZl2lo=OhcejEbfF&wCBGa71s=ID&P_fpkgFJyV=Wo&wIOCVsOZp0=nFz&nWEFj8uN4HM=f" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="https://github.com/jyg3/6/wiki" target="_blank">自由上网入口1</a>
 
 # &nbsp;&nbsp; <a href="https://github.com/begood0513/goodnews/blob/master/README.md" target="_blank">自由上网入口2</a>
 
