@@ -14,7 +14,7 @@
 
 
 
-# &nbsp;&nbsp; <a href="https://d335tze24xduyy.cloudfront.net/?DkgDDyCM4t=diVl_&8y6=7U94&6LKGT-b4=lV&tykjWCD=7cwWtWGu&qPSE8PlZn7=OFLFHEP&SgQMi#11960123" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="https://d7zxj80mkqia9.cloudfront.net/?88=i5wBxIK9ZaClEso&_bf4Q=8cRFcGz&EJiuruW0Z=28&QcXx_pgn" target="_blank">自由上网入口1</a>
 
 # &nbsp;&nbsp; <a href="https://github.com/begood0513/goodnews/blob/master/README.md" target="_blank">自由上网入口2</a>
 
