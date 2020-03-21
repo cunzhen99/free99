@@ -14,7 +14,7 @@
 
 
 
-# &nbsp;&nbsp; <a href="https://github.com/jyg3/6/wiki" target="_blank">自由上网入口1</a>
+# &nbsp;&nbsp; <a href="https://webdao.github.io" target="_blank">自由上网入口1</a>
 
 # &nbsp;&nbsp; <a href="https://github.com/begood0513/goodnews/blob/master/README.md" target="_blank">自由上网入口2</a>
 
