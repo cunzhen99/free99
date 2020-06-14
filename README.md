@@ -4,7 +4,9 @@
 
 （2020/06/13 更新，网址有效）
 
-### 固定短网址：https://git.io/free99
+### 固定短网址1：https://git.io/free99
+
+### 固定短网址2：https://is.gd/free999
 
 #### （微信如打不开，请在浏览器打开）
 
@@ -27,8 +29,9 @@
 
 ### 请记住本網站短网址，注意是https：
 
-## https://git.io/free99
+##  固定短网址1：https://git.io/free99
 
+### 固定短网址2：https://is.gd/free999
 
 ***
 
