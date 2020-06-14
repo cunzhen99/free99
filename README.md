@@ -18,7 +18,7 @@
 
 # &nbsp;&nbsp; <a href="https://github.com/begood0513/goodnews/blob/master/README.md" target="_blank">自由上网入口3</a>
 
-# &nbsp;&nbsp; <a href="https://github.com/oGate2/oo/blob/master/README.md" target="_blank">自由上网入口4</a>
+# &nbsp;&nbsp; <a href="https://github.com/odoor3/oo/blob/master/README.md" target="_blank">自由上网入口4</a>
 
 ***
 
