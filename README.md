@@ -31,7 +31,7 @@
 
 ##  固定短网址1：https://git.io/free99
 
-### 固定短网址2：https://is.gd/free999
+## 固定短网址2：https://is.gd/free999
 
 ***
 
