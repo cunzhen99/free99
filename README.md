@@ -12,10 +12,6 @@
 ***
 
 
-# &nbsp;&nbsp; <a href="https://is.gd/ZlxYLl" target="_blank">新聞看點</a>
-
-***
-
 # &nbsp;&nbsp; <a href="https://github.com/jyg66/4/wiki" target="_blank">自由上网入口1</a>
 
 # &nbsp;&nbsp; <a href="https://github.com/djerb2399/www/blob/master/README.md" target="_blank">自由上网入口2</a>
