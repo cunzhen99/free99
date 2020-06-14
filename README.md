@@ -20,6 +20,10 @@
 
 # &nbsp;&nbsp; <a href="https://github.com/odoor3/oo/blob/master/README.md" target="_blank">自由上网入口4</a>
 
+# &nbsp;&nbsp; <a href="https://github.com/236245296475/e/wiki" target="_blank">自由上网入口5</a>
+
+
+
 ***
 
 ### 请记住本網站短网址，注意是https：
