@@ -2,7 +2,7 @@
 
 # 电脑、手机一键翻墙
 
-（2020/04/13 更新，网址有效）
+（2020/06/13 更新，网址有效）
 
 ### 固定短网址：https://git.io/free99
 
@@ -19,9 +19,6 @@
 # &nbsp;&nbsp; <a href="https://github.com/begood0513/goodnews/blob/master/README.md" target="_blank">自由上网入口3</a>
 
 # &nbsp;&nbsp; <a href="https://github.com/odoor3/oo/blob/master/README.md" target="_blank">自由上网入口4</a>
-
-# &nbsp;&nbsp; <a href="https://github.com/236245296475/e/wiki" target="_blank">自由上网入口5</a>
-
 
 
 ***
