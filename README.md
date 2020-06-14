@@ -20,6 +20,8 @@
 
 # &nbsp;&nbsp; <a href="https://github.com/odoor3/oo/blob/master/README.md" target="_blank">自由上网入口4</a>
 
+# &nbsp;&nbsp; <a href="https://shallwe20.com/entrance?uid=0000142266" target="_blank">匯真網 https://is.gd/zhen123</a>
+
 
 ***
 
