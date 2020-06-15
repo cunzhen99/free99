@@ -35,10 +35,6 @@
 
 ***
 
-
-<p><img src="https://free99.s3-us-west-1.amazonaws.com/free99.jpg"></p> 
-
 <p></p>
 
-***
 
